@@ -1,2 +1,2 @@
 # README
-All about interior and exterior designs. Fusing tech with space energy and wellbeing
+All about interior and exterior designs: Fusing tech, sustainability and space-energy and wellbeing
